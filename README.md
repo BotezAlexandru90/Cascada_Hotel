@@ -1,2 +1,2 @@
-This is a independent project
+This is an independent project
 All images belong to Hotel Cascada.
